@@ -1,0 +1,27 @@
+---
+author: Dave Pelzer
+categories:
+- Tiểu Thuyết Phương Tây
+description: Không Nơi Nương Tựa
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/5847
+- info: mobi
+  url: https://sachvui.com/download/mobi/5848
+- info: pdf
+  url: https://sachvui.com/download/pdf/5849
+image: https://sachvui.com/cover/2018/khong-noi-nuong-tua.jpg
+layout: post
+permalink: /khong-noi-nuong-tua.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Không Nơi Nương Tựa ebook
+- Không Nơi Nương Tựa pdf
+thumbnail_url: https://sachvui.com/cover/2018/khong-noi-nuong-tua.jpg
+title: Không Nơi Nương Tựa
+---
+
+ <div class="item-desc text-justify"> <p>Không nơi nương tựa” là câu chuyện thật của chính tác giả, kể về thời thơ ấu bị vùi dập đau thương của mình - một trong những trường hợp hắt hủi và bạo hành trẻ em nghiêm trọng nhất lịch sử bang California, Hoa Kỳ. Em bé Dave Pelzer đã bị chính mẹ ruột bỏ đói và đánh đập tàn nhẫn. Ngườ mẹ luôn nghiện ngập và bất ổn về mặt tinh thần của cậu luôn bày ra những trò không thể đoán trước được, ác độc và gây nguy hiểm đến tính mạng của cậu. Dave phải học cách đối phó với những ngón đòn của người mẹ ruột của chính mình để sống sót vì bà ta đã không còn coi cậu là con trai của mình, mà chỉ là một tên nô lệ; trong mắt bà ta, Dave không phải là một đứa bé, mà là một “con vật”.<br><br>Chỗ ngủ của Dave là một chiếc cũi nhỏ và cũ kỹ đặt dưới tầng hầm, còn quần áo của cậu thì rách nát và luôn bốc mùi nồng nặc. Cậu chỉ được mẹ quẳng cho những mẩu thức ăn dư thừa, ôi thiu. Thế giới bên ngoài không hay biết gì về những cơn ác mộng có thật của cậu bé đáng thương ấy. Cậu không có bất kỳ ai để nương tựa, chỉ có những giấc mơ dẫn đường cho cậu tiếp tục sống - giấc mơ về một người nào đó quan tâm đến cậu, yêu thương cậu và gọi cậu là con.<br><br>Qua mỗi cuộc chống chọi của cậu bé ấy trong bóng tối cay nghiệt, bạn sẽ thấy như bản thân mình cũng cảm nhận được nỗi đau của cậu, an ủi nỗi cô đơn của cậu và cùng cậu tranh đấu cho sự sống còn. Câu chuyện đầy sức thuyết phục này sẽ giúp chúng ta nhận định rõ hơn về bản chất của nạn bạo hành trẻ em, đồng thời biết rằng chúng ta hoàn toàn có khả năng tạo nên một điều gì đó khác biệt để chấm dứt thực trạng đau lòng này.<br><br>Dave Pelzer được xem là một trong những phát ngôn viên quốc gia làm việc hiệu quả nhất và đáng tin cậy nhất, chuyện hoạt động trong các nhóm hội, tổ chức chuyên nghiệp về dịch vụ nhân quyền. Những thành tích nổi bật của Dave đã nhận được những lời khen tặng từ đích thân cựu Tổng thống Ronald Reagan và George Bush. Năm 1993, Dave được vinh danh là một trong mười Đại diện tiêu biểu nhất của Thanh niên Hoa Kỳ và năm 1994, Dave là công dân duy nhất của nước Mỹ vinh dự được trao tặng giải thưởng Thanh niên tiêu biểu nhất thế giới. Dave còn được chọn làm người rước đuốc trong Thế Vận Hội năm 1996. Dave đã cống hiến cả cuộc đời mình để giúp nhiều người khác thoát khỏi nghịch cảnh.<br><br>Dave là tác giả của quyển The Lost Boy - phần hai trong bộ ba tác phẩm của ông, và phần cuối là A Man Named Dave.<br><br>Dave sống một cuộc sống bình lặng ở Rancho Mirage, California với vợ, con trai Stephen và chú rùa cưng tên Chuck.</p><p><em><strong>Nhận xét</strong></em></p><p>“Không nơi nương tựa là một quyển sách hấp dẫn và làm xúc động lòng người. Đây là một trong những tựa sách có ý nghĩa trong thời đại chúng ta và là quyển sách nên đọc đối với những ai đang đi tìm bí mật của sức mạnh nội tại”.</p><p>- Vicki Binniger</p><p>Giám đốc điều hành Hội Cha Mẹ, Trung tâm Điều trị, Can thiệp và Phòng chống Bạo hành Trẻ em California</p><p><br>“Ký ức tuổi thơ của Dave Pelzer là bằng chứng cho sự chiến thắng của ý chí con người. Quyển sách đã lột tả được một cách rõ ràng nhất sự ngược đãi mà cậu bé phải chịu đựng dưới bàn tay của người mẹ và sự bàng quan vô cảm đến khó tin của những người xung quanh trước hoàn cảnh khốn khổ của cậu. Lòng dũng cảm và sự quyết tâm của Pelzer sẽ còn giúp ích rất nhiều cho hàng triệu trẻ em đang phải sống và chịu đựng sự ngược đãi trong thầm lặng”.</p><p>- Mark Riley<br><br>Liên hiệp Phúc lợi Trẻ em Hoa Kỳ</p><p><br>“Để biết thế nào là sự giày vò về tinh thần lẫn thể xác của bạo hành trẻ em cũng như để biết đứa trẻ ấy quyết chí thế nào để sống sót sau tất cả, hãy đọc quyển sách hết sức cảm động và rất thuyết phục này. Hy vọng rằng quyển sách sẽ giúp chúng ta tập trung vào việc ngăn chặng nạn bạo hành trước khi quá muộn”.</p><p>- Anne Cohn Donnelly<br><br>Ủy ban Phòng chống Bạo hành Trẻ em Quốc Gia</p><p><br>“Dave Pelzer là người sống sót vĩ đại vì đã chiến thắng quá khứ bị ngược đãi của mình. Câu chuyện của Dave sẽ giúp chúng ta hiểu rằng mỗi năm còn có hàng trăm ngàn đứa trẻ vô tội khác bị tra tấn và đối xử tàn bạo”.</p><p>- Glenn A.Goldberg<br><br>Cựu Giám đốc điều hành của Cục Chống Bạo hành Trẻ em California</p><p><br>“Khi cầm quyển sách này trong tay, tôi đã không thể buông xuống. Đây là quyển sách hay nhất về đề tài bạo hành trẻ em mà tôi từng được đọc. Khi độc giả đi cùng David qua nỗi sợ hãi, mát mát, bị cô lập, nỗi đâu và cả những cơn giận dữ tột cùng để đến được với niềm tin sau cùng, thì thế giới tối tăm của đứa trẻ bị ngược đãi cũng được phơi bày ra ánh sáng, dù nó từng chứa đựng nhiều nỗi đau. Chúng ta đã nghe thấu được tiếng khóc than của những đứa trẻ bị ngược đãi qua đôi mắt, đôi tay và thân thể của Dave Pelzer. Không nơi nương tựa khiến tôi chỉ muốn ôm chặt lấy những người thân yêu của mình trong tình yêu thương”.</p><p>- Valerie Bivens<br><br>Nhân viên xã hội Tổ chức Bảo vệ Trẻ em California</p> </div>

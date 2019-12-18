@@ -1,0 +1,27 @@
+---
+author: Mikhail Sholokhov
+categories:
+- Tiểu Thuyết Phương Tây
+description: Sông Đông Êm Đềm
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/6038
+- info: mobi
+  url: https://sachvui.com/download/mobi/6039
+- info: pdf
+  url: https://sachvui.com/download/pdf/6040
+image: https://sachvui.com/cover/2018/song-dong-em-dem.jpg
+layout: post
+permalink: /song-dong-em-dem.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Sông Đông Êm Đềm ebook
+- Sông Đông Êm Đềm pdf
+thumbnail_url: https://sachvui.com/cover/2018/song-dong-em-dem.jpg
+title: Sông Đông Êm Đềm
+---
+
+ <div class="item-desc text-justify"> <p><strong>"<em>Sông Đông êm đềm</em>" là bộ tiểu thuyết vĩ đại nhất của nhà văn Nga Mikhail Sholokhov. Ông đã được tặng Giải Nobel văn học năm 1965. Tuy vậy, khi tác phẩm mới ra đời, tên tuổi của ông đã bị bôi nhọ vì ''đứa con tinh thần" này...</strong><br><br><em><strong>Sông Đông êm đềm</strong></em> miêu tả một giai đoạn lịch sử 10 năm từ 1912-1922 tập trung chủ yếu ở hai bờ sông Đông và một làng quê người Kozak ở ven sông. Truyện kể về số phận con người trong chiến tranh, sự đúng sai của những quyết định trong cuộc đời mỗi con người, quan niệm về tình yêu, hôn nhân và ngoại tình...<br><br>Chuyện khắc hoạ 10 năm cuộc đời của nhân vật Gregori Melekhov. Anh đem lòng yêu Aksinia, vợ một người hàng xóm. Để ngăn cản mối quan hệ này phát triển, gia đình Melekhov cưới Natalia cho Gregori. Để được sống bên nhau, Gregori và Aksinia cùng bỏ nhà đi làm thuê. Tủi nhục, phẫn uất vì bị chồng mới cưới ruồng bỏ, Natalia đã quyên sinh nhưng không chết.<br><br>Sau này, Gregori phải đi lính trong những năm đầu của Thế chiến I. Tham gia chiến tranh, Gregori cảm nhận được tính chất tàn bạo, vô nghĩa của nó. Mặc dù chán ghét chiến tranh và không ý thức được mình chém giết để làm gì nhưng vó ngựa của Gregori vẫn phiêu bạt khắp các chiến trường, lao vào những trận đánh đẫm máu.<br><br>Ở nhà, Aksinia sống trong cơ cực, cô đơn, đứa con đầu lòng chết vì bệnh tật, nàng đã ngã vào vòng tay của tay con trai chủ nhà. Khi về phép, biết chuyện dan díu của Aksinia, Gregori quay trở về sống với Natalia. Sau khi Gregori hết nghỉ phép và quay về quân ngũ, Natalia sinh đôi một trai, một gái.<br><br>Sau những gì đã xảy ra, Gregori và Aksinia vẫn nối lại quan hệ. Tuyệt vọng vì lại mất Gregori lần nữa, Natalia nhờ một bà lang bỏ đi đứa con đang mang trong người. Nàng chết do mất máu, trước khi chết Natalia đã tha thứ cho Gregori. Không lâu sau, đứa con gái của Gregori và Natalia cũng chết do bệnh tật.<br><br>Sau khi giải ngũ về quê, trải qua nhiều biến cố chính trị, Gregori bỏ trốn theo quân thổ phỉ. Tới khi không còn đất dung thân, Gregori đem Aksinia bỏ trốn đi một nơi xa mong có được cuộc sống yên ổn nhưng trên đường trốn chạy bị phát hiện, Aksinia trúng đạn chết trên tay Gregori...<br><br>Người ta thường so sánh <strong><em>Sông Đông êm đềm</em></strong> với <strong><em><a href="https://sachvui.com/ebook/chien-tranh-va-hoa-binh-lev-tolstoy.2413.html">Chiến tranh và Hoà bình</a> </em></strong>của Lev Tolstoy. Sholokhov đã viết <em><strong>Sông Đông êm đềm</strong></em> với tất cả sự thật dù tàn nhẫn nhưng nó là hệ quả tất yếu của hoàn cảnh và tác động xã hội. Mặc dù những nhân vật chính đều rất đáng yêu, đáng được hưởng hạnh phúc nhưng số phận của Gregori, Aksinia, Natalia và nhiều nhân vật khác đều kết thúc bi thảm trong dòng chảy khốc liệt của những biến động xã hội lớn lao ở Nga trong thời kỳ Nội chiến.<br><br>Tác phẩm với trên 100 nhân vật diễn ra trong khoảng thời gian 10 năm trên một không gian rộng lớn, với những sự kiện lịch sử dồn dập nhưng được kết cấu vô cùng chặt chẽ. Độc giả đã bị cuốn hút bởi tính cách và tâm hồn của nàng Aksinia sẵn sàng chiến đấu đến cùng để giành giật tình yêu nhưng cũng có lúc không vượt qua nổi phút cô đơn, tuyệt vọng và bản năng. Natalia thì ngược lại, rất mực thủy chung, hiền dịu nhưng nhẫn nhục, cam chịu đến mức trở nên yếu đuối.<br><br>Những nhân vật của Sông Đông êm đềm rất giàu tính hiện thực. Sholokhov đã đưa vào Sông Đông êm đềm những cảnh vật quê hương, những tập tục, những bài dân ca một cách nhuần nhuyễn, hòa quyện.<br><br>Trong <em><strong>Sông Đông êm đềm</strong></em> hình tượng nhân vật Gregori tiêu biểu cho tầng lớp trung nông trải qua nhiều lầm lạc về tư tưởng chính trị trong những năm tháng bão táp lịch sử. Đó là con người chính trực, tự trọng, nồng nhiệt, mạnh mẽ và dũng cảm, yêu làng xóm quê hương, nhưng cũng có những mặt xấu như thô bạo, ít nhiều tàn nhẫn và tư hữu.<br><br>Gregori đã rơi vào lầm lạc khi đi theo quân bạch vệ, phạm tội chống lại nhân dân và Tổ quốc. Ngay trong những ngày tháng đó chàng vẫn không thôi dằn vặt, cảm thấy lạc lõng, đau khổ vì quyết định của mình. Kết cục của sự lừng chừng giữa những dòng xoáy của xã hội đã khiến chàng không tìm được cho mình một con đường đi đúng đắn, không tìm thấy ý nghĩa của cuộc sống, khiến những người phụ nữ gắn bó với chàng phải chịu kết cục thảm thương và bản thân Gregori cũng rơi vào tình thế nguy hiểm khi mang trọng tội phản bội chính quyền và sau cùng bên chàng cũng không còn một ai thân thích.<br><br>Sông Đông êm đềm được chuyển thể điện ảnh 3 lần: 1930 (phim câm), 1958 (phim mầu, màn ảnh rộng, đạo diễn Sergei Gerasimov) và 1992 (phim truyền hình 7 tập, đạo diễn Sergei Bondarchuk). </p> </div>

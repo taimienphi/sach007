@@ -1,0 +1,25 @@
+---
+author: Markus Zusak
+categories:
+- Tiểu Thuyết Phương Tây
+description: Kẻ Trộm Sách
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/2634
+- info: mobi
+  url: https://sachvui.com/download/mobi/2635
+image: https://sachvui.com/cover/2015/ke-trom-sach.jpg
+layout: post
+permalink: /ke-trom-sach.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Kẻ Trộm Sách ebook
+- Kẻ Trộm Sách pdf
+thumbnail_url: https://sachvui.com/cover/2015/ke-trom-sach.jpg
+title: Kẻ Trộm Sách
+---
+
+ <div class="item-desc text-justify"> <p><strong>Kẻ trộm sách</strong> - tác phẩm của nhà văn Úc<strong> Markus Zusak</strong> xuất bản năm 2005 đã làm mưa làm gió trên bảng xếp hạng những cuốn sách bán chạy nhất của The New York Times hơn 100 tuần liên tiếp, trở thành một tác phẩm kinh điển, một sự lựa chọn của hệ thống các thư viện trường học của Anh và Mỹ. <strong>Kẻ trộm sách</strong> khi mới ra đời đã lập tức gây ngạc nhiên cho những cây bút phê bình văn học trên thế giới và làm hàng triệu cặp mắt phải nhòa lệ.</p><p>Chọn một đề tài tưởng như đã có quá nhiều cây bút đào xới - cuộc chiến tranh thế giới lần thứ 2 - nhưng <strong>Markus Zusak </strong>vẫn gây bất ngờ cho người đọc. Người kể chuyện trong tác phẩm này là Thần Chết - một “gương mặt” quen thuộc của chiến tranh, gắn liền với cái chết, với sự bi thương, sự tăm tối. Nhưng câu chuyện mà Thần chết kể ra, về sự dữ dội của những gì con người gây ra đối với chính đồng loại của họ thì đến ngay cả Thần Chết cũng phải rùng mình. Lật giở những trang sách, người đọc như bước vào cuộc trò chuyện với Thần Chết, một nhân vật có khiếu hài hước, với một lời cảnh báo nho nhỏ đầy hóm hỉnh ngay khi mở đầu câu chuyện rằng “Bạn sẽ chết”. Đây là một câu chuyện với quá nhiều cái chết nhưng cũng đầy ắp tình yêu thương và thấm đẫm tính nhân văn. Dù vậy, nội dung chính của câu chuyện không lột tả những cảnh chiến trường đẫm máu của thế chiến II, những cảnh giết chóc man rợ… mà đây là câu chuyện về Liesel, cô bé gái mồ côi được làm con nuôi tại phố Thiên Đàng thuộc thành phố Munich. Chính tại thị trấn nhỏ nghèo nàn với vẻ ngoài bình yên của những trận đá bóng của trẻ con, những phi vụ ăn trộm nho nhỏ của đám trẻ đói khát, tình bạn tuyệt đẹp của Liesel và cậu bé Rudy đầy cá tính… đã toát lên không khí của nước Đức căng thẳng đầy những xung đột 0 một nước Đức đang trải qua một trong những giai đoạn kinh hoàng nhất của lịch sử nhân loại.</p><p>Từ cuộc sống nghèo tại phố Thiên Đàng nhỏ bé, Liesel đã phải - trực tiếp và gián tiếp - chứng kiến sự tàn khốc của cuộc chiến, sự man rợ đến rùng mình của chế độ phát xít đối với những người Do Thái vô tội. Ngay trong số các công dân nước Đức luôn bày tỏ sự trung thành tuyệt đối với Quốc trưởng mọi lúc mọi nơi thì đó vẫn có những con người như Hans Hubermann - cha nuôi của Liesel - lén lút giấu trong nhà mình một thanh niên Do Thái trước sự truy lùng của chế độ Đức quốc xã. Và vì hành động đó, Hans và gia đình ông đã phải sống trong những tháng ngày căng thẳng, sợ hãi tột độ. Có biết bao bất hạnh ập xuống những con người vô tội ở phố Thiên Đàng, những đứa trẻ mang nhiều phẩm chất đẹp đẽ và tuyệt vời như Rudy cũng phải lãnh chịu số phận bi thương. Chứng kiến cảnh đó, chính trái tim của Thần Chết như bị giày xéo và khiến ông bật khóc. Trước những gì con người gây ra cho đồng loại, Thần Chết phải thốt lên: “Tôi nhìn thấy sự xấu xí và vẻ đẹp của họ, và tôi tự hỏi rằng làm sao mà một thứ như vậy lại có thể mang cả hai thuộc tính này.”</p><p>Trong câu chuyện về Liesel, điều ấn tượng nhất với thần chết chính là niềm say mê sách của cô bé. Liesel ăn cắp những cuốn sách bất cứ khi nào có thể. Trong cuốn sách này còn có những tác phẩm của các nhân vật của chúng ta - những tác phẩm viết tay với hình minh họa đầy thú vị, cho thấy niềm say mê ngôn ngữ đồng thời đây là một ẩn dụ của tác giả về sức mạnh của ngôn từ. Ngôn từ có ma lực của riêng chúng: Chính nhờ có từ ngữ mà Hitler đã gần như thống trị được cả thế giới, nhưng cũng chính nhờ từ ngữ mà cô bé Liesel mới thoát chết. Ngôn từ trong <strong>Kẻ trộm sách</strong> được nhắc đến thường xuyên và khó nắm bắt thư thể những nốt nhạc của một bản giao hưởng.</p><p><strong>Kẻ trộm sách</strong> được viết nên bằng một văn phong đặc biệt, lôi cuốn. Sự thành công của <strong>Kẻ trộm sách</strong> còn nằm ở tài năng khắc họa nhân vật của<strong> Zusak</strong> - ông đã thổi một luồng sinh khí vô cùng mạnh mẽ vào từng nhân vật, khiến cho họ - tuy chỉ được biết đến qua những con chữ trên mặt giấy - vẫn sống động và đầy cá tính, vẫn khiến người đọc phải đau nỗi đau của họ, vui niềm vui của họ, và hồi hộp theo dõi câu chuyện cuộc đời họ cho đến tận trang sách cuối cùng. Đúng như lời khẳng định các nhà phê bình văn học, <strong>Kẻ trộm sách</strong> là một tác phẩm mà bạn sẽ khó lòng bỏ xuống nửa chừng một khi đã bước vào câu chuyện kể của vị thần chết đầy vui tính…</p> </div>

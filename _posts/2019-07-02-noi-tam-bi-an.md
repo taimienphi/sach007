@@ -1,0 +1,25 @@
+---
+author: Robert Fulghum
+categories:
+- Tâm Lý - Kỹ Năng Sống
+description: Nội Tâm Bí Ẩn
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/3181
+- info: mobi
+  url: https://sachvui.com/download/mobi/3182
+image: https://sachvui.com/cover/2016/noi-tam-bi-an.jpg
+layout: post
+permalink: /noi-tam-bi-an.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Nội Tâm Bí Ẩn ebook
+- Nội Tâm Bí Ẩn pdf
+thumbnail_url: https://sachvui.com/cover/2016/noi-tam-bi-an.jpg
+title: Nội Tâm Bí Ẩn
+---
+
+ <div class="item-desc text-justify"> <p>Sau cuốn sách Hạt Giống Yêu Đời, First News vừa hoàn tất hợp đồng bản quyền và xuất bản cuốn sách thứ hai của tác giả <strong>Robert Fulghum</strong> - “Maybe or Maybe not” với tựa tiếng Việt là Nội Tâm Bí Ẩn. Cuốn sách nằm trong danh mục là 1 trong 8 cuốn sách bán chạy thuộc hàng best seller của Robert Fulghum do Thời báo New York Times bình chọn. Cho đến nay 8 cuốn sách đã bán ra 17 triệu bản với 31 ngôn ngữ và 103 quốc gia trên thế giới.</p><p>Điều gì làm nên sức hấp dẫn, được bạn đọc ưu ái dành tình cảm như vậy ở những cuốn sách của Robert Fulghum? Câu trả lời đang chờ bạn khi lật mở từng trang của Nội Tâm Bí Ẩn.</p><p><strong>Robert Fulghum</strong> chỉ ra, trong mỗi một con người tồn tại 3 đời sống: đời sống xã hội, đời sống riêng tư và đời sống bí mật. Ở đó, đời sống xã hội của chúng ta xoay quanh các công việc và cuộc sống, nơi những nguyên tắc, pháp luật và các tục lệ khiến chúng ta cứ phải răm rắp tuân theo. Trong khi đó, đời sống riêng tư của chúng ta lại gắn với sự hiện diện của gia đình, bạn bè và hàng xóm, vốn là những người mà chúng ta phải quan tâm, tôn trọng, tuy những nguyên tắc, lề thói được đặt ra không chặt chẽ bằng đời sống xã hội.</p><p>Ngược lại với hai đời sống đó, trong đời sống bí mật của chúng ta, tức là những gì diễn ra trong tâm trí mỗi người, hầu như mọi thứ đều có thể xảy ra. “Khi chẳng còn ai khác ở xung quanh, chính mỗi người mới có thể trả lời cho những điều mình suy nghĩ và hành động. Phân chia thành “thực tế” hay “hư cấu” không còn thích đáng ở đây nữa”, Robert Fulghum diễn giải.</p><p>Robert Fulghum nói thêm: “Chúng ta đề cập đến chính mình bằng đại từ nhân xưng ngôi thứ nhất số ít - “tôi” - nhưng bên trong đó có lẽ luôn tồn tại nhiều hơn một cá thể. Dường như lúc nào trong tâm trí tôi cũng có những cuộc đối thoại bất tận giữa tôi và một bản thể khác. Và kỳ quặc thay, bản thể đó lại thường thông minh hơn tôi”.</p><p>Trong cuốn sách Nội Tâm Bí Ẩn của mình, Robert Fulghum đã gửi tới bạn đọc những câu chuyện được xem là những chiếc chìa khóa để khám phá đời sống bí mật hay cũng chính là đời sống nội tâm bí ẩn của mỗi người. Ở đó có những câu chuyện sâu sắc, thâm thúy; cũng có những câu chuyện mang tính hài hước.</p><p>Có lẽ, vì bản thân là người từng kinh qua nhiều công việc, vai trò như ca sĩ, họa sĩ, nhân viên kinh doanh, chuyên viên pha chế rượu, giáo viên hội họa, mục sư… nên những đề tài được Robert Fulghum đề cập trong cuốn sách của mình hết sức phong phú và đa dạng. Có những đề tài mang tính cao siêu trong cảm hứng về tôn giáo, về toán học, âm nhạc cổ điển… nhưng được tác giả thể hiện bằng những câu chuyện gần gũi, giản dị.</p><p>Maybe hay Maybe not là những từ dùng để ám chỉ điều có thể hay không thể của một vấn đề nào đó. Tất cả những gì chúng ta nghĩ, chúng ta tin, hay chúng ta đã làm, đó chỉ là chuyện của chúng ta. Số phận của chúng ta đang nằm trong tay ta liệu ta có dám quả quyết rằng chúng ta sẽ làm được những điều mà từ bấy lâu nay chúng ta không hề tưởng tượng đến hay không.</p><p>Bạn không cần phải là một giáo sư thần học hay thuộc về một tổ chức tôn giáo nào, nhưng chính bạn phải là người giải quyết vấn đề trong cuộc sống của mình dù theo cách này hay cách khác.</p><p>Maybe là câu nói của chúng ta và cũng là câu trả lời thông mình nhất để giúp ta rộng mở cánh cửa tri thức, giúp ta nhận biết được ý nghĩa cuộc sống. Cuộc sống hàng ngày xảy ra rất nhiều điều nhưng chúng ta phải luôn tin rằng, chính chúng ta phải đối mặt và giải quyết các vấn đề ấy một cách triệt để, hơn thế nữa quyển sách này cho ta thấy được rằng trong mọi hoàn cảnh khó khăn luôn song hành với nó là hướng giải quyết.</p><p>Với đề tài chủ yếu xoay quanh thế giới nội tâm nhiều bí ẩn của con người, bạn đọc sẽ tìm thấy trong cuốn sách <strong>Nội Tâm Bí Ẩn </strong>những giây phút thư giãn thật sảng khoái khi cùng thưởng thức những chiêm nghiệm thú vị đầy bất ngờ của vị tác giả hài hước đến độ thâm thúy này.</p><p><strong>Thông tin tác giả:</strong></p><p><strong>Robert Fulghum </strong>không chỉ là nhà văn mà còn là một triết gia, một diễn giả được mến mộ. Ngoài ra, ông còn đủ phiêu lưu để trở thành một chàng cao bồi, đủ lãng mạn để làm một ca sĩ nhạc đồng quê, đủ năng động để trở thành nhân viên kinh doanh, họa sĩ chuyên nghiệp, chuyên viên pha chế rượu, giáo viên hội họa, mục sư, và hơn tất cả là một người cha mẫu mực.</p> </div>

@@ -1,0 +1,27 @@
+---
+author: Le Clézio
+categories:
+- Tiểu Thuyết Phương Tây
+description: Người Chưa Bao Giờ Thấy Biển
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/6272
+- info: mobi
+  url: https://sachvui.com/download/mobi/6273
+- info: pdf
+  url: https://sachvui.com/download/pdf/6274
+image: https://sachvui.com/cover/2018/nguoi-chua-bao-gio-thay-bien.jpg
+layout: post
+permalink: /nguoi-chua-bao-gio-thay-bien.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Người Chưa Bao Giờ Thấy Biển ebook
+- Người Chưa Bao Giờ Thấy Biển pdf
+thumbnail_url: https://sachvui.com/cover/2018/nguoi-chua-bao-gio-thay-bien.jpg
+title: Người Chưa Bao Giờ Thấy Biển
+---
+
+ <div class="item-desc text-justify"> <p>Trong mấy chục năm cầm bút, Le Clézio không chỉ nổi tiếng với các cuốn tiểu thuyết. Truyện ngắn của ông cũng có những dấu ấn riêng. Đặc biệt cuốn Mondo và các truyện khác xuất bản năm 1978 có thể được coi là một trong những cột mốc quan trọng trong quá trình sáng tác của ông. Đồng thời, về nhiều mặt, nó vẫn liền mạch với các tác phẩm trước và sau đó qua việc thể hiện một cách độc đáo của nhà văn về chủ đề trẻ em. </p><p>Đôi khi chúng ta cảm thấy thật khó tưởng tượng ra hình ảnh của nhà văn “bác học” (một tiến sĩ văn chương, giảng viên của nhiều trường Đại học Âu – Mỹ văn mình hiện đại lại gắn liền với một thế giới nhân vật trẻ em lang thang “bụi đời” như trong tập Mondo và các truyện khác hoặc một số sáng tác khác của ông. </p><p>Tất cả các câu chuyện trong cuốn Mondo và các truyện khác đều đề cập đến trẻ em, những trẻ khác thường, so với độ tuổi ngây thơ của chúng càng dị thường hơn khi đặt chúng vào trong một xã hội hiện đại văn minh, tiên tiến. Chúng đều giống nhau ở địa vị ngoài lề xã hội, nhưng lại là những kẻ mộng mơ, đắm mình trong thiên nhiên, với đồi núi, sông suối, biển, trời, với ngàn sao, với ánh sáng của buổi trời đang rạng, ánh sáng ban ngày, ban đêm, ánh rực rỡ của mặt trời đang buổi ban trưa… Đó là Mondo lang thang không gia đình và cũng không thích ai hỏi về chuyện ấy; là Daniel, một cậu bé kì dị, chẳng thèm nghe khi người ta nói chuyện về biển vì cậu còn chìm đắm trong những tưởng tượng về biển theo kiểu của cậu, “một kiểu biển khác”, không giống của mọi người; còn cô bé Petite Croix lại thích ngồi một mình, gần như bất động hàng giờ giữa lúc trời nắng gắt để chờ đợi câu trả lời chính xác của câu hỏi đã ám ảnh cô bé từ năm nào qua năm khác: “Màu xanh da trời là gì?”…</p><p>Dường như ở nhân vật Mondo tập trung tốt cả đặc điểm của những nhân vật trẻ em trong tập truyện ngắn. Như mọi đứa trẻ bình thường trong xã hội hiện đại, nó rất thích xem truyện tranh, đến mức dù mù chữ, nó vẫn có thể đọc theo kiểu của nó. Không gia đình, không cha mẹ, không ai chăm sóc, lang thang, sống như bụi đời, nhưng nó lại có cách cư xử của kiểu người có giáo dục. Nó bị săn đuổi như những con chó hoang nhưng lại thừa khôn ngoan để lẩn tránh những luật lệ của xã hội hiện hành. Bị xếp ngoài lề xã hội, phải bươn chải tự kiếm sống, từng bị đói, nhưng Mondo lại là chú bé có cuộc sống nội tâm phong phú: thích thú với những câu chuyện phiêu lưu, nó biến các công chức Bưu điện về hưu thành người kể chuyện như thuở xa xưa, nó say mê những con chim mòng biển tự do chao mình bay lượn, yêu màu sắc cũng như dáng bay giữa bầu trời mênh mông của con diều giấy có hình cánh bướm, thích thú chiêm ngưỡng vẻ đẹp và sức mạnh của dòng nước tưới đường.</p><p> Nếu chỉ dừng ở đây, chúng ta có thể nói Le Clézio đã xây dựng thành công một thế giới nhân vật trẻ em đặc biệt và thú vị. Nhưng có lẽ không chỉ có vậy. Qua nhân vật Mondo và các nhân vật trẻ em khác, nhà văn muốn gửi gắm tới bạn đọc nhiều hơn thế. Ngay tên gọi Mondo đã gợi ý cho ta nhiều điều. Thoạt đầu, Mondo làm chúng ta liên tưởng tới từ monde, trong tiếng Pháp có nghĩa là “thế giới”, “thiên hạ”… Bản thân cậu bé Mondo trong truyện cũng có mối liên hệ rất rộng bởi cuộc sống nay đây mai đó đã khiến cậu gặp gỡ với nhiều hạng người, từ nhiều chân trời khác nhau trên trái đất. Theo một nhà nghiên cứu Pháp, Mondo thực ra là một từ tiếng Nhật dùng để chỉ cuộc đối thoại khi giảng dạy về Thiền. Và chắc sẽ rất thú vị nếu chúng ta có điều kiện nghiên cứu cuộc đối thoại của chú bé Mondo với cuộc đời qua câu hỏi thường xuyên của cậu với những người qua đường: “Ông bà có muốn nhận cháu làm con nuôi không ạ?” cùng rất nhiều câu hỏi khác. Còn trong truyện, theo cách dạy chữ cái của ông già trên bãi biển, tên Mondo khi ghép lại trở thành những hình ảnh hết sức thú vị và độc đáo: “Có một ngọn núi, một ông trăng tròn, có ai đó chào trăng lưỡi liềm và lại có một ông trăng nữa”. Và chẳng biết có phải ngẫu nhiên không khi có nhiều trăng đến thế trong tên của cậu bé Mondo? Còn khi Mondo thích các chữ O, I, T, Z, V, W chính là bởi O và Z tượng trưng cho ánh sáng còn I, T, V là sự vận động không ngừng, là các chuyến viễn du đầy mơ ước, tìm đến những chân trời xa, những điều tốt đẹp nhất.</p><p> Nhân vật của Le Clézio như là lời thông điệp của ánh sáng, của ước mơ, của vẻ đẹp trần thế khi con người còn có thể mơ ước, kiếm tìm không mệt mỏi. Thoát ra ngoài những bức tường bê tông xám xịt, những tòa nhà cao ốc thiếu ánh sáng mặt trời, những máy móc vô tri vô giác, con người có thể làm phong phú cuộc sống của mình bằng một hiện thực sống động hồn nhiên, đầy cảm xúc, đầy tính nhân văn.</p> </div>
